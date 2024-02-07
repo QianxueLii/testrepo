@@ -1,2 +1,2 @@
-##I made so me changes
+##I made some changes
 
